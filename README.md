@@ -10,8 +10,14 @@ I´m Luiz
 - ⚡ Fun fact:
 
   ° I like the simple
+
+  
   ° I don´t know how to swim
+
+  
   ° I really like coffee
+
+  
   ° Hobbies: playgames, gym, drive, read books, try new things
 
 
